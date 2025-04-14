@@ -1,1 +1,1 @@
-# Data-processing-using-the-shell-language.-Scripts-in-Linux.
+# Data-processing-using-the-shell-language.-Scripts-in-Linux.[Data processing using the shell language. Scripts in Linux..pdf](https://github.com/user-attachments/files/19738384/Data.processing.using.the.shell.language.Scripts.in.Linux.pdf)
